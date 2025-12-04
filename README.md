@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: b22ponpa
 - 😄 Pronouns: she
 - ⚡ Fun fact: ANdrea POnce
+- Estoy editando la segunda rama.
   
